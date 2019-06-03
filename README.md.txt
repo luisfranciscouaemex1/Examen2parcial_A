@@ -1,4 +1,4 @@
-4-. la mejor herramienta po la forma y los recursos que nos ofrece es saikit-ñearn, la cual nos l aproporciona google, en base a recursos
+4-. la mejor herramienta po la forma y los recursos que nos ofrece es saikit-Ã±earn, la cual nos l aproporciona google, en base a recursos
 que nuestras pc no tienen es facil el exportar y mostrar resultados de forma consisa y rapida. 
 
 
